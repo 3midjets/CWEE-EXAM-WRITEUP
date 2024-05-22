@@ -2,6 +2,6 @@
 
 SOON!!
 
-Telegram: https://t.me/BF3midjets
+Discord: 3midjets_81260
 
-Git-OSINT
+Telegram: https://t.me/BF3midjets
